@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @VivDude
+- 👀 I’m interested in hacking, coding, music, anime  Gaming
+- 🌱 I’m currently learning HTML, Linux, Java, C++ and Python, I've been learning this for 4 and a half years now
+- 💞️ I’m looking to collaborate on Firewall attack tools
+- 📫 How to reach me, just email me on my gmail acount added to my profile
+- I also distrubute strong hotspot VPN shields for 2 dollars, I also give antiviruses for 3 dollars. You can pay me in any other currency too.
